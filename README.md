@@ -14,21 +14,22 @@ Voici le forum regroupant toutes les informations sur Cristiano Jr
 
 Famille :
 
-Il est né le 17 juillet 2010 en Californie. De son père Cristiano Ronaldo est d'une mère qui a souhaitée resté anonyme et qui a donnée la garde exclusive au père. Il a été élevé par sa grand-mère Maria Dolores dos Santos Aveiro.
+    Il est né le 17 juillet 2010 en Californie. De son père Cristiano Ronaldo est d'une mère qui a souhaitée resté anonyme et qui a donnée la garde exclusive au père. Il a été élevé par sa grand-mère Maria Dolores dos Santos Aveiro.
 
     Dans une interview en 2015 avec Jonathan Ross, Cristiano Ronaldo révélera que son fils ne connaît pas sa mère mais qu'il lui dira quand le moment sera venu et quand il sera prêt .
 
-    La petite amie du footballeur, Georgina Rodriguez, jouant donc le rôle de mère avec Ronaldo Jr ce qui n'a pas l'air de le déranger , pour autant elle est la mère des trois autres enfants de Ronaldo : les jumeaux Eva et Mateo, nés en juin 2017 par maternité de substitution et Alana Martina, née en novembre 2017.
+    La petite amie du footballeur, Georgina Rodriguez, jouant donc le rôle de mère avec Ronaldo Jr ce qui n'a pas l'air de le déranger , pour autant elle est la mère des   trois autres enfants de Ronaldo : les jumeaux Eva et Mateo, nés en juin 2017 par maternité de substitution et Alana Martina, née en novembre 2017.
 
 Carrière :
+ 
+  Le jeune athlète de football, Ronaldo Jr est actuellement à l'académie de football de Al Nassr après la signature de son père dans ce club au mercato hivernale 2022.
 
- Le jeune athlète de football, Ronaldo Jr est actuellement à l'académie de football de Al Nassr après la signature de son père dans ce club au mercato hivernale 2022.
+   Lors du transfert estival en 2021, il rejoint l'équipe des moins de 12 ans de Manchester United. 
+   Il a déjà joué dans l'académie de football de la Juventus avant d'être transféré du côté des Red Devils après le retour de son père à Old Trafford lors d'un transfert à hauteur 22 millions de dollars en août 2021 pour faire revenir leur maître a jouer de la ligue des champions 2008 .
 
- Lors du transfert estival en 2021, il rejoint l'équipe des moins de 12 ans de Manchester United. Il a déjà joué dans l'académie de football de la Juventus avant d'être transféré du côté des Red Devils après le retour de son père à Old Trafford lors d'un transfert à hauteur 22 millions de dollars en août 2021 pour faire revenir leur maître a jouer de la ligue des champions 2008 .
+   Ronaldo a révélé qu'il aimerait encore continuer à jouer au football jusqu’à ce que son fils soit professionnel car un des ses rêves serait de pouvoir jouer ensemble et voir son fils suivre ses pas .
 
- Ronaldo a révélé qu'il aimerait encore continuer à jouer au football jusqu’à ce que son fils soit professionnel car un des ses rêves serait de pouvoir jouer ensemble et voir son fils suivre ses pas .
-
- Dos Santos Aveiro, la grand-mère de Cristaninho , pense qu'il est plus doué et meilleur que son père au même âge et espère qu'il sera un grand joueur suivant les pas de son mentor . 
+   Dos Santos Aveiro, la grand-mère de Cristaninho , pense qu'il est plus doué et meilleur que son père au même âge et espère qu'il sera un grand joueur suivant les pas de son mentor . 
 
 Quelque faits sur Cristiano Jr :
 
