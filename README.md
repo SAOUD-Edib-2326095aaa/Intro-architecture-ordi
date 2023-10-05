@@ -19,13 +19,15 @@ Il est né le 17 juillet 2010 en Californie. De son père Cristiano Ronaldo est 
     La petite amie du footballeur, Georgina Rodriguez, jouant donc le rôle de mère avec Ronaldo Jr ce qui n'a pas l'air de le déranger , pour autant elle est la mère des trois autres enfants de Ronaldo : les jumeaux Eva et Mateo, nés en juin 2017 par maternité de substitution et Alana Martina, née en novembre 2017.
 
 Carrière
-Le jeune athlète de football, Ronaldo Jr est actuellement à l'académie de football de Al Nassr après la signature de son père dans ce club au mercato hivernale 2022.
+| --------------- | --------------- |  ----|
 
-    Lors du transfert estival en 2021, il rejoint l'équipe des moins de 12 ans de Manchester United. Il a déjà joué dans l'académie de football de la Juventus avant d'être transféré du côté des Red Devils après le retour de son père à Old Trafford lors d'un transfert à hauteur 22 millions de dollars en août 2021 pour faire revenir leur maître a jouer de la ligue des champions 2008 .
+| Le jeune athlète de football, Ronaldo Jr est actuellement à l'académie de football de Al Nassr après la signature de son père dans ce club au mercato hivernale 2022.|
 
-    Ronaldo a révélé qu'il aimerait encore continuer à jouer au football jusqu’à ce que son fils soit professionnel car un des ses rêves serait de pouvoir jouer ensemble et voir son fils suivre ses pas .
+| Lors du transfert estival en 2021, il rejoint l'équipe des moins de 12 ans de Manchester United. Il a déjà joué dans l'académie de football de la Juventus avant d'être transféré du côté des Red Devils après le retour de son père à Old Trafford lors d'un transfert à hauteur 22 millions de dollars en août 2021 pour faire revenir leur maître a jouer de la ligue des champions 2008 .|
 
-    Dos Santos Aveiro, la grand-mère de Cristaninho , pense qu'il est plus doué et meilleur que son père au même âge et espère qu'il sera un grand joueur suivant les pas de son mentor .
+| Ronaldo a révélé qu'il aimerait encore continuer à jouer au football jusqu’à ce que son fils soit professionnel car un des ses rêves serait de pouvoir jouer ensemble et voir son fils suivre ses pas .|
+
+| Dos Santos Aveiro, la grand-mère de Cristaninho , pense qu'il est plus doué et meilleur que son père au même âge et espère qu'il sera un grand joueur suivant les pas de son mentor . |
 
 Quelque faits sur Cristiano Jr
 
@@ -48,13 +50,3 @@ Parlant du fils du meilleur joueur de ce siècle
 
 Regroupant toutes les informations intéressante sur ce joueur qui a le potentiel de devenir un joueur énorme à effigie de son père
 	
-Featured Article: wiki:using-this-wiki-site
-
-The Using this wiki site page provides useful information for the Site Admin. New users of Wikidot.com should read this page.
-
-This text explains how this site works. If you are the site admin, read this text and when you understand it, edit it to remove the notes so that it makes sense for your users.
-
-This site implements a classic Mediawiki-style wiki in Wikidot. Use this wiki for knowledge bases, especially if your contributors or users expect a Wikipedia-similar look and feel. If you need discussion forums, there are better designs.
-
-Anyone, having registered with Wikidot, can create a wiki page or edit existing wiki pages. Only site members can edit other pages, such as the menus.
-
