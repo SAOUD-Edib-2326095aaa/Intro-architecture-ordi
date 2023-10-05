@@ -37,11 +37,11 @@ Quelque faits sur Cristiano Jr :
     Il a 1 frère du nom de Mateo et 2 soeurs du nom de Eva et Alana.
 
 
-Statistiques Carrière
-Réal Madrid : 374 buts et 156 passes décisive
-Juventus Football Club : 263 et 94 passes décisives
-Manchester United : 61 buts et 21 passes décisives
-Al Nassr : 20 buts et 3 passes décisives
+Statistiques Carrière 
+Réal Madrid : 374 buts et 156 passes décisive ,
+Juventus Football Club : 263 et 94 passes décisives ,
+Manchester United : 61 buts et 21 passes décisives ,
+Al Nassr : 20 buts et 3 passes décisives ,
 
 
 Page Wiki parlant du fils du meilleur joueur de ce siècle
