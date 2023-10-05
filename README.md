@@ -16,7 +16,7 @@ Famille :
 
     Il est né le 17 juillet 2010 en Californie. De son père Cristiano Ronaldo est d'une mère qui a souhaitée resté anonyme et qui a donnée la garde exclusive au père. Il a été élevé par sa grand-mère Maria Dolores dos Santos Aveiro.
 
-    Dans une interview en 2015 avec Jonathan Ross, Cristiano Ronaldo révélera que son fils ne connaît pas sa mère mais qu'il lui dira quand le moment sera venu et quand il sera prêt .
+Dans une interview en 2015 avec Jonathan Ross, Cristiano Ronaldo révélera que son fils ne connaît pas sa mère mais qu'il lui dira quand le moment sera venu et quand il sera prêt .
 
     La petite amie du footballeur, Georgina Rodriguez, jouant donc le rôle de mère avec Ronaldo Jr ce qui n'a pas l'air de le déranger , pour autant elle est la mère des   trois autres enfants de Ronaldo : les jumeaux Eva et Mateo, nés en juin 2017 par maternité de substitution et Alana Martina, née en novembre 2017.
 
