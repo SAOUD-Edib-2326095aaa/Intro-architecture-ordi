@@ -1,6 +1,6 @@
 Réalisateurs :  SAOUD EDIB , BENDIAF KHAIREDINE, KRAIMI WISSEM
 
-Type de document : Ceci est une page wiki réaliséà l'aide de l'hébergeurwiki Wikidot (https://www.wikidot.com/) , cette page traite de l'histoire de Cristiano Ronaldo JR ainsi que ces palmarès. Le lien de notre page : (http://cristianojr.wikidot.com)
+Type de document : Ceci est une page wiki réalisé à l'aide de l'hébergeur wiki Wikidot (https://www.wikidot.com/) , cette page traite de l'histoire de Cristiano Ronaldo JR ainsi que ses palmarès. Le lien de notre page : (http://cristianojr.wikidot.com)
 
 Date de réalisation : Nous avons débuté la réalisation de cette page le 5 octobre 2023 à 13h45 sur Wikidoc, nous avons confirmer le début de la page à 15H30 , puis les dernières modifications ont été réalisé le 5 octobre  2023 à 17h25  sur Wikidoc également.
 
